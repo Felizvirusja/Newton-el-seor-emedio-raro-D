@@ -1,2 +1,1 @@
-# Newton-el-seor-emedio-raro-D
-XD
+# NC27
